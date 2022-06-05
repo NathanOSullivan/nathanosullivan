@@ -3,7 +3,7 @@
 ***Hobbies***
 * Starting projects I'll never complete 🏗️
 * Listening to *or* making music 🎧
-* Reading about completely irrelevant topics 📖
+* Reading about completely irrelevant subjects 📖
 
 
 ***Favorite Topics***
