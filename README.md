@@ -1,7 +1,7 @@
 ### Hey everyone, I'm Nathan!
 
 ***Hobbies***
-* Start projects I'll never complete 🏗️
+* Starting projects I'll never complete 🏗️
 * Listening to *or* making music 🎧
 * Reading about completely irrelevant topics 📖
 
