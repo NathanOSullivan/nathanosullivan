@@ -2,8 +2,15 @@
 
 ***Hobbies***
 * Start projects I'll never complete 🏗️
-* Listen to *or* make music 🎧
-* Read about completely irrelevant topics 📖
+* Listening to *or* making music 🎧
+* Reading about completely irrelevant topics 📖
+
+
+***Favorite Topics***
+* Emulation 💾
+* Game Engines 🎮
+* Computer Physics 💣
+* Video Game Homebrew 🕹👾
 
 ***My Favorite Languages***
 <p float="left">
